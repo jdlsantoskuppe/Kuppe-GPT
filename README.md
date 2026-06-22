@@ -1,1 +1,0 @@
-# Kuppe-GPT
